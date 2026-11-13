@@ -1,6 +1,6 @@
 ![mb bischoff (hot, blonde, transsexual) wearing red sunglasses on a subway train, with sunlight across her face and a subway map behind her.](https://cdn.sanity.io/images/yo9g280s/production/87da46fc236f1b1167b557202ce5bcb6fb34f043-1280x468.jpg)
 
-photo by [ClaireViolet](https://ultraviolet.photo/about.html)
+<small><em>photo by [ClaireViolet](https://ultraviolet.photo/about.html)</em></small>
 
 [mb bischoff](https://mbbischoff.com) ♥︎ makes [poems](https://chromato.graphics/), [pictures](https://mbbischoff.com/pictures/), & [programs](https://mbbischoff.com/projects) in [Brooklyn](https://en.wikipedia.org/wiki/Brooklyn).
 
